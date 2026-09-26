@@ -1,0 +1,1 @@
+# Translator-For-Microsoft-Edge-Full-Version-Unlocked
